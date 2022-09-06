@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @roximb
+- 👀 I’m interested in your mom
+- 🌱 I’m currently learning programing
+- 📫 How to reach me CPU#1576 discord
